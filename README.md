@@ -3,9 +3,11 @@
 
 İlk Sayfam 
 
-YouTube : https://www.youtube.com/channel/UCYDwwrhTO10JQAEzUmvwoIA
+YouTube : 
+https://www.youtube.com/channel/UCYDwwrhTO10JQAEzUmvwoIA
 
-İnstagram: https://www.instagram.com/wrety_ysf/
+İnstagram: 
+https://www.instagram.com/wrety_ysf/
 
 Google Play Oyunlarım;
 
