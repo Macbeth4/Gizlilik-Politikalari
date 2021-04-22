@@ -11,7 +11,7 @@ https://www.instagram.com/wrety_ysf/
 
 Google Play Oyunlarım;
 
-Flappy Morona :
+Flappy Morona : https://play.google.com/store/apps/details?id=com.Wrety.FlappyMorona
 
 Color : 
  
