@@ -16,6 +16,7 @@ Flappy Morona : https://play.google.com/store/apps/details?id=com.Wrety.FlappyMo
 Color Cube  : YAKINDA!
 
 Privacy Policy
+
 Wrety built the Color Cube app as a Free app. This SERVICE is provided by Wrety at no cost and is intended for use as is.
 
 This page is used to inform visitors regarding my policies with the collection, use, and disclosure of Personal Information if anyone decided to use my Service.
