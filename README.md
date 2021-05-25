@@ -13,7 +13,7 @@ Google Play Oyunlarım;
 
 Flappy Morona : https://play.google.com/store/apps/details?id=com.Wrety.FlappyMorona
 
-Color Cube  : YAKINDA!
+Color Cube  : https://play.google.com/store/apps/details?id=com.Wrety.ColorCube
 
 Privacy Policy
 
