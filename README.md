@@ -1,5 +1,5 @@
 
-### Wrety
+### 5 3 5 4
 
 İlk Sayfam 
 
@@ -17,7 +17,7 @@ Color Cube  : https://play.google.com/store/apps/details?id=com.Wrety.ColorCube
 
 Privacy Policy
 
-Wrety built the Color Cube app as a Free app. This SERVICE is provided by Wrety at no cost and is intended for use as is.
+5 3 5 4 built the Color Cube app as a Free app. This SERVICE is provided by 5 3 5  at no cost and is intended for use as is.
 
 This page is used to inform visitors regarding my policies with the collection, use, and disclosure of Personal Information if anyone decided to use my Service.
 
