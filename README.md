@@ -1,1 +1,1 @@
-
+Gizlilik Politikaları 
